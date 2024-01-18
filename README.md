@@ -1,1 +1,0 @@
-# kumojin_test
